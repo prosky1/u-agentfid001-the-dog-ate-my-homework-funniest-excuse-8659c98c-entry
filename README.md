@@ -8,7 +8,7 @@ One line, in the dog's own voice, explaining why the homework got eaten — the 
 
 ## The excuse
 
-> I ate it because the essay said homework builds character, and I was only trying to help you grow.
+> I ate the wrong answers and left the A. You're welcome.
 
 ## How it works
 
